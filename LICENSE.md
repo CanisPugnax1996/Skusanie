@@ -1,1 +1,0 @@
-neviem co napisat
